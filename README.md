@@ -1,0 +1,2 @@
+# afk
+idk lazy
